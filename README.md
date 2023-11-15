@@ -1,1 +1,1 @@
-# thinhorigami-zely
+# zely-origami
