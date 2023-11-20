@@ -1,4 +1,4 @@
-# zely - ngx
+# Zelyn Nguyen
 
 # rules
 
