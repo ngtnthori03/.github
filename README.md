@@ -1,4 +1,4 @@
-# th1nhori9ami (rlyn)
+# th1nhori9ami (th0r)
 
 # rules
 
