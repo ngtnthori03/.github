@@ -1,4 +1,4 @@
-# Zelyn Nguyen
+# th1nhori9ami (rlyn)
 
 # rules
 
