@@ -1,4 +1,4 @@
-# th1nhori9ami (tigi)
+# th1nhori9ami (thori)
 
 # rules
 
